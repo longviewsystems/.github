@@ -1,4 +1,4 @@
-## [Long View Systems ](https://www.longviewsystems.com/)
+## About Long View
 
 Technology is our means, but your empowered workforce is our end.  Our name comes from the phrase “to take the long view”, which is why it’s always two words. It reminds us of where we came from but also how we want to do things.
 * We’re not looking for quick-wins with clients; we form partnerships that ensure the relationship is intact tomorrow.
